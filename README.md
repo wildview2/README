@@ -11,4 +11,4 @@ https://drive.google.com/drive/u/1/folders/1LRGGkq3BhAOqzVOz2lzHXu95isOmqzqa
 https://drive.google.com/drive/folders/1-S_IeKQHhCXCuIWjitVgslLhp3SEhEqF?usp=sharing
 
 
-Так же в winrar ответы:
+Так же здесь раположены ответы на ваш датасет
